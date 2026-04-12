@@ -1,0 +1,1 @@
+# resumen_manual_automovil
